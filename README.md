@@ -1,1 +1,1 @@
-# EducationFinance
+# Finance Impact on Education
